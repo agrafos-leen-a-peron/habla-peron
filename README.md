@@ -10,6 +10,7 @@ Fragmentos de los discursos del General Peron desde 1944 a 1950 referidos a conc
 > del acontecimiento de nuestro siglo, se halla hoy tambien el Estado".
 >
 > -- Peron, 27 Enero 1949, ante la Asamblea Constituyente Reformadora.
+> 
 > https://elhistoriador.com.ar/discurso-del-general-juan-domingo-peron-ante-la-asamblea-constituyente-reformadora/
 
 > "En estos momentos, en que se cambia el destrino de la Patria, y en que la Historia cambia su curso, quedara determinado en forma
